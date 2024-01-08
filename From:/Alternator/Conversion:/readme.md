@@ -1,0 +1,2 @@
+- [DIY | Turning an alternator into a brushless motor. Go kart | electric bicycle | brushless motor.](https://www.youtube.com/shorts/wtLEnOaHciA)
+- [Converting a Car Alternator to Produce Free Energy](https://youtu.be/aV6kLTqS8YE)
